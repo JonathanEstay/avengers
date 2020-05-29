@@ -1,3 +1,4 @@
 # Misiones
 
 investigar
+capturar
