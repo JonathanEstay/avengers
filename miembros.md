@@ -23,4 +23,4 @@
 21. Giganta
 22. Deadshot
 23. Scarecrow
-24. Nick Fury
+24. Nick Furyssss
