@@ -1,4 +1,3 @@
 # Villanos
 
 * cualquiera
-* Gorilla Grodd
